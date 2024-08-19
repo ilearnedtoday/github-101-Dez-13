@@ -12,4 +12,3 @@ I’m an auditor/accountant with over 5 years of experience in accounting and ta
 - Playing Soccer
 - Watching Soccer
 - Reading
-- Chasing the Bag
